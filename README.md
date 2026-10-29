@@ -1,4 +1,4 @@
-<img width="498" height="368" alt="wednesday-addams" src="https://github.com/user-attachments/assets/cfd9c545-f3e8-4078-9e49-78050a8568f6" />
+<img width="498" height="368" alt="wednesday-addams" src="https://github.com/user-attachments/assets/cfd9c545-f3e8-4078-9e49-78050a8568f6" /> ![](https://komarev.com/ghpvc/?username=hell-awaits&label=adams&message=69&color=030301)
 
 my github is for ponytown only 
 

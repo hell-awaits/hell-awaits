@@ -1,4 +1,5 @@
-<img width="540" height="400" alt="2d69ec0430a6db73d3cc7ecf8944b9d3" src="https://github.com/user-attachments/assets/3a3f0e4c-7e54-4252-a04f-6fdf4ca32ab3" />
+<img width="498" height="368" alt="wednesday-addams" src="https://github.com/user-attachments/assets/cfd9c545-f3e8-4078-9e49-78050a8568f6" />
+
 my github is for ponytown only 
 
 hello im davhie, or xerc call me whatever. im usually alone or with friends. i dont like being interacted unless we share intrests, but if u like my ponies feel free to whisper. im also dry so dont take it as me being mean okay.?

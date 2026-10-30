@@ -12,6 +12,7 @@ my github is for ponytown only
 
  - im rarely active and if i am im probably offtab or busy with other stuff so dont expect me to reply instantly unless im with my friends. 
 
+" 𝔰𝔥𝔢𝔰 𝔪𝔶 𝔴𝔥𝔦𝔱𝔢 𝔣𝔢𝔞𝔱𝔥𝔢𝔯 𝔥𝔞𝔴𝔨 𝔱𝔞𝔦𝔩 𝔡𝔢𝔢𝔯 𝔥𝔲𝔫𝔱𝔢𝔯. " 
 
 <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd4bd&bar_color_cover=true">

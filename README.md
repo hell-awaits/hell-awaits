@@ -10,7 +10,7 @@ my github is for ponytown only
 - she wants revenge, deftones, evanescene, kittie - 10/24/2026 , 
 
 
--im rarely active and if i am im probably offtab or busy with other stuff so dont expect me to reply instantly unless im with my friends. 
+ - im rarely active and if i am im probably offtab or busy with other stuff so dont expect me to reply instantly unless im with my friends. 
 
 
 <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&redirect=true">

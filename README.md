@@ -3,10 +3,15 @@
 my github is for ponytown only 
 
 - hello im davhie, or xerc call me whatever. im usually alone or with friends. i dont like being interacted unless we share intrests, but if u like my ponies feel free to whisper. im also dry so dont take it as me being mean okay.?
+- im a system, ask for alter names. i don't have a particular gender. i go by any and all pronouns
+
+
 
 - she wants revenge, deftones, evanescene, kittie - 10/24/2026 , 
 
-- im a system, ask for alter names. 
+
+
+im rarely active and if i am im probably offtab or busy with other stuff so dont expect me to reply instantly unless im with my friends. 
 
 
 <!--

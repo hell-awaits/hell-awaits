@@ -15,7 +15,9 @@ my github is for ponytown only
 " 𝔰𝔥𝔢𝔰 𝔪𝔶 𝔴𝔥𝔦𝔱𝔢 𝔣𝔢𝔞𝔱𝔥𝔢𝔯 𝔥𝔞𝔴𝔨 𝔱𝔞𝔦𝔩 𝔡𝔢𝔢𝔯 𝔥𝔲𝔫𝔱𝔢𝔯. " 
 
 
-- a few of my intrests to get to know me if you want. i like twilight, wenesday, suicide room, 
+- a few of my intrests to get to know me if you want.
+- movies/shows : i like twilight, wenesday, suicide room, emh, orphan, obsession, sp, paswg, death note, persona,
+- games : omori, yumenikki, deltarune, laceys flash games, persona, class of 09, fnaf, dangaropa, skullgirls, ddlc, etc
 
 <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd4bd&bar_color_cover=true"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5ea6dd40-3e35-4534-9f72-94c6b8baee15" /><img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/784654c9-8f92-4820-9d5f-03af117e4d5c" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6baa9dc2-33eb-4120-a57d-26806162e8bc" />

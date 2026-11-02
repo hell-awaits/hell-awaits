@@ -16,8 +16,13 @@ my github is for ponytown only
 
 
 - a few of my intrests to get to know me if you want.
-- movies/shows : i like twilight, wenesday, suicide room, emh, orphan, obsession, sp, paswg, death note, persona,
-- games : omori, yumenikki, deltarune, laceys flash games, persona, class of 09, fnaf, dangaropa, skullgirls, ddlc, etc
+- movies/shows : i like twilight, wenesday, suicide room 🖤, emh, orphan, obsession, sp, paswg, death note, persona,
+- games : omori, yumenikki, deltarune, laceys flash games, persona, class of 09, fnaf, dangaropa, skullgirls, ddlc, psychopomp.
+- bands / artists : SWR I LOVE. kmfdm, $bs, fob, bmth, deftones, pastel ghost, pinkshift, ROAR 🖤, the dreson dolls, radiohead, NIN,
+- miss construction, hole, chappell roan, blink 182, panchiko, jack stauber, SNAKE RIVER CONSPIRACY, the cure, msi, phoebe bridges,
+- 5sos, cute is what we aim for, ptv, s3rl, slowdive, cavetown
+
+- so sorry im a music nerd. i play cello btw. and guitar. wink
 
 <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd4bd&bar_color_cover=true"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5ea6dd40-3e35-4534-9f72-94c6b8baee15" /><img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/784654c9-8f92-4820-9d5f-03af117e4d5c" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6baa9dc2-33eb-4120-a57d-26806162e8bc" />
